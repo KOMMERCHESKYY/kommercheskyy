@@ -48,3 +48,5 @@ p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls/
 
 ✦ Be direct with me.
 
+•°. *࿐•°. *࿐•°. *࿐•°. *࿐•°. *࿐•°. *࿐
+
