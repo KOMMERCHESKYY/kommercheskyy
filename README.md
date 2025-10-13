@@ -1,4 +1,4 @@
-![Model](https://raw.githubusercontent.com/KOMMERCHESKYY/kommercheskyy/blob/main/1000300959222222.png?raw=true)
+ ![Model] (https://github.com/KOMMERCHESKYY/kommercheskyy/blob/main/1000300959222222.png)
   
 
 Header
