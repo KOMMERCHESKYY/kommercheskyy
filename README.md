@@ -7,7 +7,7 @@
 
 Name ✶ Komiloj(n) / Kommerchesky (Komi or Kommerch)
 
-Age ✶ 17
+Age ✶ 17 (05.02)
 
 DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, people who start complaining (Idk them), and people who are obsessed with politics, toxic, under the age of 15
 
