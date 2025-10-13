@@ -11,7 +11,7 @@ Age ✶ 17 (05.02)
 
 DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, people who start complaining (Idk them), and people who are obsessed with politics, toxic, under the age of 15
 
-fandoms ✶ tshd, marutoku games, enstars, guilty parade, ranfren, 8:11, reverse1999, blue lock, genshin impact, honkai3rd, countryhumans, alien stage, persona5, dr.stone, moriarty the patriot, milgram, crk, owari no seraph, these are the main ones.
+fandoms ✶ tshd, marutoku games, enstars, guilty parade, saihate station, ranfren, 8:11, reverse1999, blue lock, genshin impact, honkai3rd, countryhumans, alien stage, persona5, dr.stone, moriarty the patriot, milgram, crk, owari no seraph, these are the main ones.
 
 music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, 4 pozicii bruno, kino, pticy em, porez na sobake, aria, nand, televizor, postpunk rus. komitet ohrany tepla, krasnya plesen, alexey vishnya, kassiopeya, svidetelstvo o smerty, cherniy lykich, bi-2, GSPD, dosvidosh, agata cristy, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, splin, etc..
 
@@ -20,6 +20,7 @@ music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, 4 pozicii bruno, 
 1:08━━●━━━━─────── 4:14
 
 ㅤㅤ ⇆ ◁ㅤㅤ❚❚ㅤㅤ▷ ㅤ ↻
+
 
 
 •𝐅𝐎𝐑 𝐀𝐍𝐆/𝐄𝐒𝐏!!•
