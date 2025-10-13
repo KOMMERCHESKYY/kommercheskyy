@@ -27,7 +27,7 @@ music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, 4 pozicii 
 
 
 
-•𝐅𝐎𝐑 𝐀𝐍𝐆/𝐄𝐒𝐏!!•
+•𝐅𝐎𝐑 𝐄𝐍𝐆/𝐄𝐒𝐏!!•
 
 I communicate through a translator! I plan to learn these languages better in the future. I may not understand your slang and jokes!! but I'm trying.
 
