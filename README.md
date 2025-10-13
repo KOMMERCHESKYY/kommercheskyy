@@ -27,10 +27,12 @@ music ✶ grazhdanskya oborona, kommunizm, egor letov, 4 pozicii bruno, kino, pt
 
 ✦ I love the history of the USSR, Russian Empire.
 
-p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls
+p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls/
 
 ✦ just wanted 2 say sry if my jokes were too much, didn't mean 2 offend u! :(
 
 ✦ I love to draw, but I rarely do it.
+
+✦ I love communication ehh.
 
 
