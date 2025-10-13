@@ -23,12 +23,12 @@ music ✶ grazhdanskya oborona, kommunizm, egor letov, 4 pozicii bruno, kino, pt
 ✦ I don't play roblox!!
 
 
-✦ If you love my OC I love u
+✦ If u love my OC I love u ♡
 
 ✦ I love the history of the USSR, Russian Empire.
 
 p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls
 
-✦just wanted 2 say sry if my jokes were too much, didn't mean 2 offend u! :(
+✦ just wanted 2 say sry if my jokes were too much, didn't mean 2 offend u! :(
 
 
