@@ -31,4 +31,6 @@ p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls
 
 ✦ just wanted 2 say sry if my jokes were too much, didn't mean 2 offend u! :(
 
+✦ I love to draw, but I rarely do it.
+
 
