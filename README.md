@@ -15,9 +15,10 @@ fandoms ✶ tshd, marutoku games, enstars, guilty parade, ranfren, 8:11, reverse
 
 music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, 4 pozicii bruno, kino, pticy em, porez na sobake, aria, nand, televizor, postpunk rus. komitet ohrany tepla, krasnya plesen, alexey vishnya, kassiopeya, svidetelstvo o smerty, cherniy lykich, bi-2, GSPD, dosvidosh, agata cristy, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, splin, etc..
 
-  ᶻ﹕→     P.S Сам (Айя)
+  ᶻ﹕→ .      P.S Сам (Айя)
 
 1:08━━●━━━━─────── 4:14
+
 ⇆ ◁ㅤㅤ❚❚ㅤㅤ▷ ㅤ ↻
 
 
