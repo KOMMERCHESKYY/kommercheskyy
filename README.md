@@ -50,4 +50,4 @@ p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls/
 
 •°. *࿐•°. *࿐•°. *࿐•°. *࿐•°. *࿐•°. *࿐
 
- ![Model](https://github.com/KOMMERCHESKYY/kommercheskyy/blob/main/1000300974.png)
+ ![Model](https://github.com/KOMMERCHESKYY/kommercheskyy/blob/main/1000300977.png)
