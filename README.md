@@ -17,6 +17,18 @@ fandoms ✶ tshd, marutoku games, enstars, guilty parade, 8:11, reverse1999, blu
 
 music ✶ grazhdanskya oborona, kommunizm, egor letov, 4 pozicii bruno, kino, pticy em, porez na sobake, aria, nand, televizor, postpunk rus. komitet ohrany tepla, krasnya plesen, alexey vishnya, kassiopeya, svidetelstvo o smerty, cherniy lykich, GSPD, dosvidosh, agata cristy, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, splin, etc..
 
+
+•𝐅𝐎𝐑 𝐀𝐍𝐆/𝐄𝐒𝐏!!•
+
+I communicate through a translator! I plan to learn these languages better in the future. I may not understand your slang and jokes!! but I'm trying.
+
+I'm a language barrier hater.
+
+question: why are u on a safe/spanishsafe server instead of a russian one?
+
+answer: I'm bored. + I love meeting new and unusual people. ^_^
+
+
 •𝐚𝐝𝐝𝐢𝐭𝐢𝐨𝐧•
 
 
