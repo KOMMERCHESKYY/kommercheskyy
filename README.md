@@ -24,9 +24,9 @@ I communicate through a translator! I plan to learn these languages better in th
 
 I'm a language barrier hater.
 
-question: why are u on a safe/spanishsafe server instead of a russian one?
+question: - why are u on a safe/spanishsafe server instead of a russian one?
 
-answer: I'm bored. + I love meeting new and unusual people. ^_^
+answer: - I'm bored. + I love meeting new and unusual people. ^_^
 
 
 •𝐚𝐝𝐝𝐢𝐭𝐢𝐨𝐧•
