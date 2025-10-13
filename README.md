@@ -1,4 +1,4 @@
-![ezcv logo](https://raw.githubusercontent/KOMMERCHESKYY/kommercheskyy/blob/main/1000300958.png?raw=true)
+![Model](Paste_link_here)
   
 
 Header
