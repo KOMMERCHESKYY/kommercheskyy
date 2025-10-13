@@ -1,4 +1,4 @@
-   [Image Alt](https://github.com/KOMMERCHESKYY/kommercheskyy/blob/main/1000300958.png?raw=true)
+![ezcv logo](https://raw.githubusercontent/KOMMERCHESKYY/kommercheskyy/blob/main/1000300958.png?raw=true)
   
 
 Header
