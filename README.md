@@ -11,6 +11,6 @@ Age ✶ 17
 
 Pronous ✶ he/him
 
-DNI ✶ zoophiles, pedophiles, people who start complaining (Idk them), and people who are obsessed with politics, toxic, under the age of 15
+DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, people who start complaining (Idk them), and people who are obsessed with politics, toxic, under the age of 15
 
 fandoms ✶ tshd, marutoku games, enstars, guilty parade, 8:11, reverse1999, blue lock, genshin impact, honkai3rd, countryhumans, alien stage, persona5, dr.stone, moriarty the patriot, milgram, crk, owari no seraph, these are the main ones.
