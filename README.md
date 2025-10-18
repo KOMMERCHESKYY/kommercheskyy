@@ -17,7 +17,7 @@ DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, peop
 
 fandoms ✶ tshd, marutoku games, bsd, enstars, south park, guilty parade, saihate station, no, I’m not a human, ranfren, 8:11, reverse1999, blue lock, genshin impact, honkai3rd, countryhumans, alien stage, persona5, dr.stone, moriarty the patriot, milgram, crk, owari no seraph, these are the main ones.
 
-music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, 4 pozicii bruno, kino, pticy em, porez na sobake, aria, nand, televizor, postpunk rus. komitet ohrany tepla, krasnya plesen, alexey vishnya, kassiopeya, svidetelstvo o smerty, cherniy lykich, picnic, the cure, bi-2, GSPD, dosvidosh, agata cristy, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, cherniy cofe, splin, etc..
+music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, 4 pozicii bruno, kino, pticy em, porez na sobake, aria, nand, televizor, postpunk rus. komitet ohrany tepla, krasnya plesen, alexey vishnya, kassiopeya, svidetelstvo o smerty, cherniy lykich, picnic, the cure, ylitsa vostok, bi-2, GSPD, dosvidosh, agata cristy, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, cherniy cofe, splin, etc..
 
  ㅤㅤㅤㅤㅤP.S Сам (Айя)
 
