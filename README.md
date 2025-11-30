@@ -17,7 +17,7 @@ DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, peop
 
 fandoms ✶ tshd, marutoku games, bsd, enstars, south park, guilty parade, saihate station, no, I’m not a human, ranfren, 8:11, reverse1999, blue lock, genshin impact, honkai3rd, countryhumans, alien stage, persona5, dr.stone, moriarty the patriot, milgram, crk, owari no seraph, these are the main ones.
 
-music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, nogu svelo!, 4 pozitcii bruno, kino, ptitcu yem, porez na sobake, aria, nand, televizor, postpunk rus. komitet okhrany tepla, krasnaya plesen, aleksey vishnya, kassiopeia, svidetelstvo o smerti, chernyy lukich, picnic, the cure, ylitsa vostok, bi-2, GSPD, dosvidosh, agata cristi, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, chernyy cofe, splin, etc..
+music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, nogu svelo!, 4 pozitcii bruno, kino, ptitcu yem, porez na sobake, aria, nand, televizor, postpunk rus. komitet okhrany tepla, krasnaya plesen, aleksey vishnya, kassiopeia, svidetelstvo o smerti, chernyy lukich, picnic, the cure, ylitsa vostok, bi-2, GSPD, dosvidosh, agata cristi, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, chernyy cofe, splin, teplaya trassa, etc..
 
  ㅤㅤㅤㅤㅤP.S Сам (Айя)
 
@@ -45,7 +45,7 @@ answer: - I'm bored. + I love meeting new and unusual people. ^_^
 
 ✦ If u love my OC I love u ♡
 
-✦ I love the history of the USSR, Russian Empire.
+✦ I love the history of the USSR, Russian Empire, China
 
 p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls.
 
