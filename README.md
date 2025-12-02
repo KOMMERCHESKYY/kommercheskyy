@@ -33,7 +33,7 @@ I communicate through a translator! I plan to learn these languages better in th
 
 I'm a language barrier hater.
 
-question: - why are u on a safe/spanishsafe server instead of a russian one?
+question: - why are u on a safe/spanishsafe server instead of a russian?
 
 answer: - I'm bored. + I love meeting new and unusual people. ^_^
 
@@ -49,7 +49,7 @@ answer: - I'm bored. + I love meeting new and unusual people. ^_^
 
 p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls.
 
-✦ just wanted 2 say sry if my jokes were too much, didn't mean 2 offend u! :(
+✦ just wanted too say sry if my jokes were too much, didn't mean too offend u! :(
 
 ✦ I love to draw, but I rarely do it.
 
