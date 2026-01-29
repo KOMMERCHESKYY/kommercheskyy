@@ -9,6 +9,7 @@
 
    •𝐚𝐛𝐨𝐮𝐭 𝐦𝐞•
 
+
 Name ✶ Komil/Komilon, Krasnyy Octyabr, Vladimir.
 
 Age ✶ 17 (05.02)
