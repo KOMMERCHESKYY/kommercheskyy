@@ -9,7 +9,7 @@
 
    •𝐚𝐛𝐨𝐮𝐭 𝐦𝐞•
 
-Name ✶ Komiloj(n) / Kommerchesky (Komi or Kommerch)
+Name ✶ Komil/Komilon, Krasnyy Octyabr, Vladimir.
 
 Age ✶ 17 (05.02)
 
