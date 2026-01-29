@@ -38,6 +38,8 @@ question: - why are u on a safe/spanishsafe server instead of a russian?
 
 answer: - I'm bored. + I love meeting new and unusual people. ^_^
 
+I'm the boss of AFK!!!!!
+
 
 •𝐚𝐝𝐝𝐢𝐭𝐢𝐨𝐧•
 
