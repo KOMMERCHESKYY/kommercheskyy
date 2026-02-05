@@ -12,7 +12,7 @@
 
 Name ✶ Komil/Komilon, Krasnyy Octyabr, Vladimir.
 
-Age ✶ 17 (05.02)
+Age ✶ 18 (05.02)
 
 DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, people who start complaining (Idk them), and people who are obsessed with politics, toxic, under the age of 15. нытики и плаксы обходите меня стороной пж.
 
