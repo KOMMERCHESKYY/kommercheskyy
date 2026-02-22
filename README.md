@@ -17,9 +17,9 @@ Age ✶ 18 (05.02)
 
 DNI ✶ zoophiles, pedophiles, an interlocutor who shows no interest in me, people who start complaining (Idk them), and people who are obsessed with politics, toxic, under the age of 15. нытики и плаксы обходите меня стороной пж.
 
-fandoms ✶ tshd, marutoku games, bsd, enstars, south park, guilty parade, saihate station, no, I’m not a human, ranfren, 8:11, reverse1999, blue lock, genshin impact, honkai3rd, countryhumans, alien stage, persona5, dr.stone, moriarty the patriot, milgram, crk, owari no seraph, these are the main ones.
+fandoms ✶ tshd, marutoku games, enstars, south park, guilty parade, saihate station, no, I’m not a human, ranfren, 8:11, reverse1999, genshin impact, honkai3rd, countryhumans, persona5, dr.stone, moriarty the patriot, crk, owari no seraph, these are the main ones.
 
-music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, nogu svelo!, 4 pozitcii bruno, kino, ptitcu yem, porez na sobake, aria, nand, televizor, postpunk rus. komitet okhrany tepla, krasnaya plesen, aleksey vishnya, kassiopeia, svidetelstvo o smerti, chernyy lukich, picnic, the cure, ylitsa vostok, bi-2, GSPD, dosvidosh, agata cristi, nautilus pompilius, ybei menya ice!, kraftwerk, ashbury heights, chernyy cofe, splin, teplaya trassa, etc..
+music ✶ grazhdanskya oborona, kommunizm, egor letov, petrov, vihod, nogu svelo!, 4 pozitcii bruno, kino, ptitcu yem, porez na sobake, aria, televizor, postpunk rus. komitet okhrany tepla, krasnaya plesen, aleksey vishnya, kassiopeia, svidetelstvo o smerti, chernyy lukich, picnic, ylitsa vostok, bi-2, GSPD, dosvidosh, agata cristi, nautilus pompilius, ybei menya ice!, chernyy cofe, splin, teplaya trassa, otdel samoiskorynenia, avtomaticheskie ydovletvoriteli, mongol shuudan etc..
 
  ㅤㅤㅤㅤㅤP.S Сам (Айя)
 
