@@ -12,7 +12,7 @@
 
 Чувак с которым можно АФКшить сутками, найдись пж
 
-Name ✶ Komil/Komilon, Krasnyy Octyabr, Vladimir.
+Name ✶ Komil/Komilon, Krasnyy Octyabr,k87Ts
 
 Age ✶ 18 (05.02)
 
