@@ -53,10 +53,6 @@ I'm the boss of AFK!!!!!
 
 ✦ If u love my OC I love u ♡
 
-✦ I love the history of the USSR, Russian Empire, China
-
-p.s I want to visit Germany, France, Mexico, Italy, China, Vietnam, pls.
-
 ✦ just wanted too say sry if my jokes were too much, didn't mean too offend u! :(
 
 ✦ I love to draw, but I rarely do it.
